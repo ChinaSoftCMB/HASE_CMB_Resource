@@ -1,1 +1,0 @@
-# HASE_CMB_Resource
